@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on mobile applications and web services.
 - 📫 How to reach me ...
 - 😄 Pronouns: ✨ ✨ 
-- ⚡ Fun fact: Can you 🕊️ forward? Go with me🧏🏽‍♂️.
+- ⚡ Fun fact: Can you step along the peak? Go with me🧏🏽‍♂️.
